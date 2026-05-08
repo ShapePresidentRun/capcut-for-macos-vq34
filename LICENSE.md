@@ -1,4 +1,4 @@
-
+CapCut for macOS ultimate Addon: layer-based-editing & video-trimming offers the most advanced CapCut for macOS addon, with layer-based-editing and video-trimming. Ideal for macOS
 
 
 
